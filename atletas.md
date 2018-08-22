@@ -1,2 +1,0 @@
-# Melhores atletas
-# Usain Bolt
